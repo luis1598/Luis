@@ -14,4 +14,5 @@
 
 ## Profile
 
-![Rose Profile](https://telegra.ph/file/718d48493d1fb11197d8b.jpg)
+
+
